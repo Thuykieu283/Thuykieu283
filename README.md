@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Thuykieu283
+- 👀 Here i upload my work as a HUST student, VietNam
+- 🌱 I’m currently learning IT, Global ICT
